@@ -1,0 +1,1 @@
+The Quasar phantom is a product from Modus Medical Devices Inc., London, Ontario, Canada. It is made of solid acrylic and has a size of 30 cm ¡Á 12 cm ¡Á 20 cm.
